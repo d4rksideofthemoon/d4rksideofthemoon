@@ -4,7 +4,7 @@
 
   "i am the *beginning* and the *end*. i *was*, i *am*, and therefore... i *will be*."
   
-  minor under 16. adults int first most often + iwc
+  minor under 16. adults iwec + likely won't int first
   
   <img width="640" height="360" alt="image" src="https://github.com/user-attachments/assets/1bc25028-af50-4c5a-b074-13457fef1fef" />
 
