@@ -1,4 +1,5 @@
-## Hi there 👋
+it's gonna be a minute,, apologies
+time has NOT used this kind of thing EVER in time's life
 
 <!--
 **timekeep1ng/timekeep1ng** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
