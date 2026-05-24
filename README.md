@@ -1,5 +1,9 @@
-it's gonna be a minute,, apologies
-time has NOT used this kind of thing EVER in time's life
+### timekeeper.
+"i am the *beginning* and the *end*. i *was*, i *am*, and therefore... i *will be*."
+
+minor under 16. adults int first most often + iwc
+<img width="768" height="768" alt="image" src="https://github.com/user-attachments/assets/e22f61c7-fd17-488e-b7d4-aea761a87219" />
+
 
 <!--
 **timekeep1ng/timekeep1ng** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
