@@ -10,13 +10,13 @@
   
   minor under 16 ; anyone older than 18 either dni or int with extreme caution
   
-  <img width="384" height="512" alt="tumblr_da8e2169b3d813fa8d6181042b82347b_764b04b7_1280" src="https://github.com/user-attachments/assets/ab23da51-09fe-4763-a933-8460912b8ec8" />
+  <img width="576" height="396" alt="tumblr_ce595a452dcb76d9ccb8abdf981f2918_6029a78b_1280" src="https://github.com/user-attachments/assets/78f3397f-a65f-4fed-8841-caaf68bc085c" />
   
   [strawpage](https://d4rksideofthemoon.straw.page/) ︵ [pronouns.cc](https://pronouns.cc/@d4rksideofthemoon) ︵ [atabook](https://d4rksideofthemoon.atabook.org/)
   
   fount of knowledge and timekeeper fictionkin
   
-  yumeshipping with shadow milk feels weird now... ah well..
+  hypersharing shadow milk yume <3333
 
   
   ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞
