@@ -12,7 +12,7 @@
   
   <img width="576" height="396" alt="tumblr_ce595a452dcb76d9ccb8abdf981f2918_6029a78b_1280" src="https://github.com/user-attachments/assets/78f3397f-a65f-4fed-8841-caaf68bc085c" />
   
-  [strawpage](https://d4rksideofthemoon.straw.page/) ︵ [pronouns.cc](https://pronouns.cc/@d4rksideofthemoon) ︵ [atabook](https://d4rksideofthemoon.atabook.org/)
+  REDOING STRAWPAGE ︵ [pronouns.cc](https://pronouns.cc/@d4rksideofthemoon) ︵ [atabook](https://d4rksideofthemoon.atabook.org/)
   
   fount of knowledge and timekeeper fictionkin
   
