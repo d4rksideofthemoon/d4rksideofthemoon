@@ -2,24 +2,26 @@
 
   ### 𝕒𝕣𝕥𝕖𝕞𝕚𝕤
 
-  ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞
+  ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
   "i am the *beginning* and the *end*. i *was*, i *am*, and therefore... i *will be*."
 
-  ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞
+  ⋆˚𝜗𝜚˚⋆
   
   minor under 16 ; anyone older than 18 either dni or int with extreme caution
+  
+<img width="600" height="392" alt="meheuhhbyagarmirrorontumblr" src="https://github.com/user-attachments/assets/8a0837ec-2c98-42ca-aa66-e60052a6a0ca" />
 
-  <img width="600" height="313" alt="MEEEEYUH" src="https://github.com/user-attachments/assets/59ebde54-ddde-44f6-adf1-adbc7e0d087c" />
+###### made by agarmirror on tumblr
   
   [strawpage](https://d4rksideofthemoon.straw.page/) ︵ [pronouns.cc](https://pronouns.cc/@d4rksideofthemoon) ︵ [atabook](https://d4rksideofthemoon.atabook.org/)
-  
+
   fount of knowledge and timekeeper fictionkin
   
   hypersharing shadow milk yume <3333
 
   
-  ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞
+  °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･
 
    <img width="150" height="20" alt="tumblr_0d6dece0dce4a27c8ed94237ba821550_395df447_250" src="https://github.com/user-attachments/assets/a2f4ff89-140e-46c7-a253-0afaffbf79ab" />
    <img width="150" height="20" alt="tumblr_1800349c4250eb0a57a2cbaf116a857e_41ce296a_250" src="https://github.com/user-attachments/assets/9c9f2f5c-eeff-4d6e-812d-9b5996201809" />
@@ -30,7 +32,7 @@
    <img width="101" height="20" alt="tumblr_f5acc593c15b1a0fa8da79bb50edb8b2_bdfca487_1280" src="https://github.com/user-attachments/assets/3692c7ba-496d-4f87-acaa-c3363afd46c9" />
    <img width="101" height="20" alt="tumblr_6c5d79e2ca7f46f3c789c5df96ae2b80_da445e02_1280" src="https://github.com/user-attachments/assets/19adad40-d903-4b98-ae9a-e648d928d6bb" />
 
-  ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞
+  ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
   
 <img width="99" height="56" alt="homosexuality" src="https://github.com/user-attachments/assets/df488800-4617-487a-b392-bcc0b83ea085" />
 <img width="99" height="56" alt="homosexuality2" src="https://github.com/user-attachments/assets/a7353198-59a1-430a-8e07-4159bfc61702" />
