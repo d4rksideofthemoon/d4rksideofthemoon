@@ -9,10 +9,10 @@
   ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞ㅤ⁞
   
   minor under 16 ; anyone older than 18 either dni or int with extreme caution
+
+  <img width="600" height="313" alt="MEEEEYUH" src="https://github.com/user-attachments/assets/59ebde54-ddde-44f6-adf1-adbc7e0d087c" />
   
-  <img width="576" height="396" alt="tumblr_ce595a452dcb76d9ccb8abdf981f2918_6029a78b_1280" src="https://github.com/user-attachments/assets/78f3397f-a65f-4fed-8841-caaf68bc085c" />
-  
-  REDOING STRAWPAGE ︵ [pronouns.cc](https://pronouns.cc/@d4rksideofthemoon) ︵ [atabook](https://d4rksideofthemoon.atabook.org/)
+  [strawpage](https://d4rksideofthemoon.straw.page/) ︵ [pronouns.cc](https://pronouns.cc/@d4rksideofthemoon) ︵ [atabook](https://d4rksideofthemoon.atabook.org/)
   
   fount of knowledge and timekeeper fictionkin
   
