@@ -16,21 +16,24 @@
   
   [strawpage](https://d4rksideofthemoon.straw.page/) ︵ [pronouns.cc](https://pronouns.cc/@d4rksideofthemoon) ︵ [atabook](https://d4rksideofthemoon.atabook.org/)
 
-  fount of knowledge and timekeeper fictionkin
+  shadow milk, fount of knowledge, and timekeeper fictionkin
   
-  hypersharing shadow milk yume <3333
+  hypersharing shadow milk yume
 
   
   °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･
+  
+<img width="136" height="27" alt="isolation" src="https://github.com/user-attachments/assets/f1f2dffa-770e-4246-80b6-d2c6513849ca" />
+<img width="136" height="27" alt="abandonment" src="https://github.com/user-attachments/assets/cc89ed5b-0b86-4e93-ace2-9d3662b08e24" />
+<img width="136" height="27" alt="idkwhatotanmeit" src="https://github.com/user-attachments/assets/f3ee9705-8349-49f2-b2e2-2206bc432257" />
+<img width="136" height="27" alt="MYFOSAREOSOSOSOOCOOLLL" src="https://github.com/user-attachments/assets/a1b104c7-705d-4816-94a4-525bd991c134" />
+<img width="136" height="27" alt="ihavereallybadmemory" src="https://github.com/user-attachments/assets/427964b9-2cec-4473-92e9-6b8a6429f3ef" />
+<img width="136" height="27" alt="dramamaaa" src="https://github.com/user-attachments/assets/604e7698-bed8-4a6e-9112-a54cf460026a" />
+<img width="136" height="27" alt="sensitive" src="https://github.com/user-attachments/assets/3cf5ff9f-7170-43b6-9c5e-5834fc818289" />
+<img width="136" height="27" alt="healing" src="https://github.com/user-attachments/assets/de6b2270-7e76-4fdc-b0a4-e75e0a112815" />
+<img width="136" height="27" alt="learning" src="https://github.com/user-attachments/assets/96f7606d-3f9e-466a-b7e2-05038d2df050" />
+<img width="136" height="27" alt="memoryproblem" src="https://github.com/user-attachments/assets/79944119-b171-4566-8155-e21976e8ea0a" />
 
-   <img width="150" height="20" alt="tumblr_0d6dece0dce4a27c8ed94237ba821550_395df447_250" src="https://github.com/user-attachments/assets/a2f4ff89-140e-46c7-a253-0afaffbf79ab" />
-   <img width="150" height="20" alt="tumblr_1800349c4250eb0a57a2cbaf116a857e_41ce296a_250" src="https://github.com/user-attachments/assets/9c9f2f5c-eeff-4d6e-812d-9b5996201809" />
-   <img width="150" height="20" alt="tumblr_f2d2638264374fc14c496ef51c2919e7_efab934c_250" src="https://github.com/user-attachments/assets/bc821325-4d68-4735-b96a-3060ea02570b" />
-   <img width="100" height="20" alt="pureshadow" src="https://github.com/user-attachments/assets/2e0bdf2a-5c0b-4375-9c43-a4f81ab7dff4" />
-   <img width="100" height="20" alt="shadowvanilla" src="https://github.com/user-attachments/assets/44b21d1f-ed22-464d-82dc-440a1c1e1788" />
-   <img width="101" height="20" alt="tumblr_438168c7fd603cec264c56a6e2a6a133_cf4e609c_1280" src="https://github.com/user-attachments/assets/e9a9b4fc-4b5a-4357-8cb8-80bfc2e128ed" />
-   <img width="101" height="20" alt="tumblr_f5acc593c15b1a0fa8da79bb50edb8b2_bdfca487_1280" src="https://github.com/user-attachments/assets/3692c7ba-496d-4f87-acaa-c3363afd46c9" />
-   <img width="101" height="20" alt="tumblr_6c5d79e2ca7f46f3c789c5df96ae2b80_da445e02_1280" src="https://github.com/user-attachments/assets/19adad40-d903-4b98-ae9a-e648d928d6bb" />
 
   ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
   
