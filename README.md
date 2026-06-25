@@ -23,17 +23,7 @@
   
   °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･
   
-<img width="136" height="27" alt="isolation" src="https://github.com/user-attachments/assets/f1f2dffa-770e-4246-80b6-d2c6513849ca" />
-<img width="136" height="27" alt="abandonment" src="https://github.com/user-attachments/assets/cc89ed5b-0b86-4e93-ace2-9d3662b08e24" />
-<img width="136" height="27" alt="idkwhatotanmeit" src="https://github.com/user-attachments/assets/f3ee9705-8349-49f2-b2e2-2206bc432257" />
-<img width="136" height="27" alt="MYFOSAREOSOSOSOOCOOLLL" src="https://github.com/user-attachments/assets/a1b104c7-705d-4816-94a4-525bd991c134" />
-<img width="136" height="27" alt="ihavereallybadmemory" src="https://github.com/user-attachments/assets/427964b9-2cec-4473-92e9-6b8a6429f3ef" />
-<img width="136" height="27" alt="dramamaaa" src="https://github.com/user-attachments/assets/604e7698-bed8-4a6e-9112-a54cf460026a" />
-<img width="136" height="27" alt="sensitive" src="https://github.com/user-attachments/assets/3cf5ff9f-7170-43b6-9c5e-5834fc818289" />
-<img width="136" height="27" alt="healing" src="https://github.com/user-attachments/assets/de6b2270-7e76-4fdc-b0a4-e75e0a112815" />
-<img width="136" height="27" alt="learning" src="https://github.com/user-attachments/assets/96f7606d-3f9e-466a-b7e2-05038d2df050" />
-<img width="136" height="27" alt="memoryproblem" src="https://github.com/user-attachments/assets/79944119-b171-4566-8155-e21976e8ea0a" />
-
+working on userboxes!!!
 
   ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
   
