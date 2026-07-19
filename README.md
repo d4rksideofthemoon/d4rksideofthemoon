@@ -1,25 +1,18 @@
 <div align="center">
 
-  ### 𝕒𝕣𝕥𝕖𝕞𝕚𝕤
+   ### 𝘢𝘳𝘵𝘦𝘮𝘪𝘴
 
-  ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
-
-  "i am the *beginning* and the *end*. i *was*, i *am*, and therefore... i *will be*."
+  "𝘮𝘢𝘯 𝘸𝘢𝘴 𝘢 𝘨𝘪𝘧𝘵 𝘣𝘰𝘳𝘯 𝘶𝘯𝘧𝘳𝘦𝘦, 𝘴𝘰 𝘪 𝘭𝘶𝘳𝘦𝘥 𝘵𝘩𝘦𝘮 𝘵𝘰 𝘵𝘩𝘦 𝘢𝘱𝘱𝘭𝘦 𝘵𝘳𝘦𝘦!"
 
   ⋆˚𝜗𝜚˚⋆
   
-  minor under 16 ; anyone older than 18 either dni or int with extreme caution
+  minor under 16 ; anyone 18 or older either dni or int with extreme caution
   
-<img width="600" height="392" alt="meheuhhbyagarmirrorontumblr" src="https://github.com/user-attachments/assets/8a0837ec-2c98-42ca-aa66-e60052a6a0ca" />
-
-###### made by agarmirror on tumblr
+<img width="630" height="351" alt="deceivingoneselfiseasybutlikingshadowmilkiseasier" src="https://github.com/user-attachments/assets/b91c324e-1e27-4826-a3e7-1191f56ac478" />
   
   [strawpage](https://d4rksideofthemoon.straw.page/) ︵ [pronouns.cc](https://pronouns.cc/@d4rksideofthemoon) ︵ [atabook](https://d4rksideofthemoon.atabook.org/)
 
-  shadow milk, fount of knowledge, and timekeeper fictionkin
-  
-  hypersharing shadow milk yume
-
+  PLEASE check pronouns.cc for more information.
   
   °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･
   
