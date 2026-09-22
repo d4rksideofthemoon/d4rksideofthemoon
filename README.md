@@ -4,6 +4,6 @@
 
 ###### ac; 3nbyarts on pinterest
   
-  [strawpage](https://shamisotherrealm.straw.page/) ︵ [pronouns.cc](https://pronouns.cc/@d4rksideofthemoon) ︵ [atabook](https://d4rksideofthemoon.atabook.org/)
+  [strawpage](https://shamisotherrealm.straw.page/) ︵ [pronouns.cc](https://pronouns.cc/@solace1nreverie) ︵ [atabook](https://solace1nreverie.atabook.org/)
 
   </div>
