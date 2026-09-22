@@ -1,6 +1,6 @@
 <div align="center">
 
-<img width="1110" height="960" alt="1000019516" src="https://github.com/user-attachments/assets/d1b407c1-8e97-4546-9460-1a7e7f57df02" />
+<img width="666" height="576" alt="1000019516" src="https://github.com/user-attachments/assets/d1b407c1-8e97-4546-9460-1a7e7f57df02" />
 
 ###### ac; 3nbyarts on pinterest
   
